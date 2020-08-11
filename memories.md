@@ -13,6 +13,7 @@
     + (Sam K) To riff on your dropping in/half pipe: Yes! Was there jousting on the half pipe (named Gerald righ?) , or did I imagine the jousting. Also the demoness I spray painted on the wall.  Also ppl got really hurt on the half pipe lol. A board flew into someone’s head — Sophie’s? 
     + (JB) You guys that, like, actually knew how to skate were probably jousting.  I can't remember when that went down though 
     + (Sam K) Lots of beer on that half pipe.  I remember sitting jousting but yea idk. I also did not know how to skate lol
+    
 
 + (Sam K) That schlitz game where we like have cards and punch each other or something? I remember throwing up schlitz more than other beers. And that violent game somehow related (?)  I remember throwing up schlitz more than other beers. And that violent game somehow related.
     + Cheltenham kids
@@ -21,6 +22,8 @@
 + (Jon Berliner) I asked Riley how to hop from rock to rock when water hiking (my family would never let us do family activities growing up - only watching movies or tv together, or going to my mom's parents' house in toledo were allowed - so I had to learn how to appreciate nature from a combo of middle school PEAK trip (not to be confused with Sam "Don't Tell me What's Real" Kassel's peak trip at the Soltrin cabin)), some curated nature walks at Camp Ramah, and winging it trying to keep up with all you guys' awesome naturing abilities.  Riley looked confused laughed, shrugged his shoulders, and said something along the lines of "uuuh, you kinda just walk!" and laughed.  Thanks for making it a joyous moment instead of one I felt embarassed to ask about
     + Also, asked Riley how to do a flip once, and he told me "try really really really hard."  I, actually really sincerely, use that advice for so many things in life still.  It's a hilariously effective way to teach yourself how to do something.  Thanks, Riley!
     + tagged: Jon Berliner, Riley
+   + (Eitan) Trying harder. Gabe gave me that advice one time when we were playing pool. I felt like I was no good and asked him to watch me and see if there was anything I should do differently, and he watched for a minute, and then said, "I think you need to try harder". Good advice.
+  +  tagged: Gabe Adels
     
 + (Jon Berliner) at some point at Camp Ramah or during a meet up at a USY event, Deshields and I had a discussion about perching ourself on chairs as the most comfortable way to sit.  I can't remember if I started "perching" before or after we talked about it, but that convo still pops up in my head every single time.
     + tagged: Berliner, Deshields
@@ -45,7 +48,7 @@
 
 + (JB) Drop in and drop in at Gabe's house.  The first time someone hung out in the garage, they "had" to drop in on the halfpipe he built.  I don't know how to skate, but whatever let's try.  I ended up stomping on the board, freaking out and grabbing the garage rails thinger on the ceiling, hanging with one hand on it in the air, and then falling into near middle the ramp.  My tailbone was not happy, but it was really funny.
     + JB, Gabe
-    
+    + (Eitan) "You come in, you drop in"
     
 + (JB) One of my first dates with Sarah at Gold star beer counter, Sarah told me the story about how her grandpa tried to kill himself by starving himself, but didn’t realize how long it would take.  Sarah’s aunt called her dad perplexed and told him dad is trying to starve himself.  When her dad, Joe, called his dad and told him, there was a pause on the phone and then 
 …son, I’m so hungry.”
